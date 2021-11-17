@@ -1,3 +1,2 @@
 # 200-acc-online
 
-https://media.discordapp.net/attachments/905179288301613126/910475505160048641/3664558C-2BF5-43AC-8BBF-B34A3FFE54DC.jpg
